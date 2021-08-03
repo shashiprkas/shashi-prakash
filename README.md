@@ -1,2 +1,0 @@
-# shashi-prakash
-My Information
